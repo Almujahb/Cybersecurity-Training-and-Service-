@@ -1,4 +1,4 @@
-# 🛡️ Almujahb Tech — Cybersecurity Training & Services
+# 🛡️ Almujahb Tech — Cybersecurity Awareness & Services
 
 **Practical Cybersecurity Education • Security Awareness • Technical Support**
 
